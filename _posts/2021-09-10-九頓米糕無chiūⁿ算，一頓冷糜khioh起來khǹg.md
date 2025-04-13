@@ -20,7 +20,7 @@ toc: true
 
 Tīm九頓米糕來有孝ta-ke-koaⁿ，chit款新婦實在真有心，可憐pháiⁿ sū-hāu ê ta-ke m̄-bat寶，iáu是嫌東嫌西，kan-nā ē記得早前hit pái「冷糜」ê失誤…aih！做人ta-ke請覺悟，惜花連盆疼kiáⁿ連孫，疼後生mā tio̍h惜新婦，boeh án-chóaⁿ疼？Ka看做是ka-tī ê cha-bó͘-kiáⁿ to̍h好--a，好--ê khioh起來khǹg，bái--ê pàng ho͘ bē記--得，簡單--無？觀念ê改變niā-niā，試看māi--leh！
 
-Kan-nā講ta-ke，咱做新婦--ê，有孝ta-ke-koaⁿ mā是kāng款ài像有孝ka-tī ê序大人án-ne，m̄-thang kan-nā做1-ê表面，做1-ê禮數hông看，án-ne to̍h chiâⁿ無應該--lò͘。
+Kan-nā講ta-ke，咱做新婦--ê，有孝ta-ke-koaⁿ mā是kāng款ài像有孝ka-tī ê序大人án-ne，m̄-thang kan-nā做1 ê表面，做1 ê禮數hông看，án-ne to̍h chiâⁿ無應該--lò͘。
 
 
 ### 【註解】

@@ -13,7 +13,7 @@ toc: true
 # 去hō͘鬼phah--tio̍h
 >**Khì hō͘ kúi phah--tio̍h**
 
-四工ê新曆元旦假期，老師、學生lóng歇kah爽oaiⁿ-oaiⁿ，初五隔開koh轉來學校，ta̍k-ê笑微微，kan-taⁿ校長1-ê面àu-tu̍h-tu̍h，m̄知無歡喜siáⁿ-mih tāi？
+四工ê新曆元旦假期，老師、學生lóng歇kah爽oaiⁿ-oaiⁿ，初五隔開koh轉來學校，ta̍k-ê笑微微，kan-taⁿ校長1 ê面àu-tu̍h-tu̍h，m̄知無歡喜siáⁿ-mih tāi？
 
 上午八點準時tī辦公室開晨會，行禮後，校長講話：ta̍k-ê gâu早！Kiàn-nā hio̍h-khùn咱tio̍h ài煩惱，四工ê假期，換來學校ê混亂，字紙、pùn-sò、狗屎一大堆--無-打-緊，飲水機ê水道頭ka-la̍uh tī土腳，水放leh chha̍p-chha̍p流，花園hit幾欉酒矸á椰，有兩欉已經斷尾溜，教室門窗開--ê開，破--ê破，ká-ná「去hō͘鬼phah--tio̍h」kāng款，各位老師，恁ê教室hông phah開--ê請giâ手！…」
 

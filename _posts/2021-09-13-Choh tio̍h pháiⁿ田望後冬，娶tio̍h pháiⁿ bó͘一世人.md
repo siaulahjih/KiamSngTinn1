@@ -18,7 +18,7 @@ toc: true
 
 Koh來咱來講結婚ê tāi-chì，娶也好，嫁也好，總是好tāi，青年男女ài了解，翁bó͘結合本是緣份，是人生路途相kap sio-kēng ê根本，你了解我、我尊重你，千萬m̄-thang一時衝動，小可無ha̍h我ê意，tio̍h boeh提起「咱來分離」。離婚是人生ê 「不得已」，兩人無kah意，ná m̄想起當初時；taⁿ生米煮熟飯，gín-á來出世，nā boeh án-ne做，kám bē siuⁿ過無情無義。
 
-Chit-má ê少年人，實在真gâu想，頭路bái，一年換一樣；講tio̍h娶bó͘、嫁ang，in koh ē曉慢慢á想，ûn-ûn-á sìm，莫非in已經瞭解「作tio̍h pháiⁿ田望後冬，娶tio̍h pháiⁿ bó͘一世人」ê道理。
+Chit-mái ê少年人，實在真gâu想，頭路bái，一年換一樣；講tio̍h娶bó͘、嫁ang，in koh ē曉慢慢á想，ûn-ûn-á sìm，莫非in已經瞭解「作tio̍h pháiⁿ田望後冬，娶tio̍h pháiⁿ bó͘一世人」ê道理。
 
 註：娶tio̍h pháiⁿ bó͘一世人，其實嫁tio̍h pháiⁿ ang mā是一世人。男女平等新時代，俗語mā ài新解說。
 

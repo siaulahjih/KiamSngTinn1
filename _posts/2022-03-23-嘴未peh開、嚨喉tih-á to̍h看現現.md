@@ -13,7 +13,7 @@ toc: true
 # 嘴未peh開、嚨喉tih-á to̍h看現現
 >**Chhùi bōe peh khui, nâ-âu-tih-á to̍h khòaⁿ hiān-hiān**
 
-阿爸！阿爸！Kā你報告1-ê好消息。
+阿爸！阿爸！Kā你報告1 ê好消息。
 Siáⁿ-mih好消息？講kah chiah好禮。
 阿爸！Ná ē án-ne講，我是你ê kiáⁿ neh！Kiáⁿ對老爸好禮mā是應該--ê。
 Siáⁿ-mih好消息？khah緊講，mài kah恁爸搬嘴gím。

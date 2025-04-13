@@ -13,7 +13,7 @@ toc: true
 # Cha-po͘-kiáⁿ得田園，cha-bó͘-kiáⁿ得嫁妝
 >**Cha-po͘-kiáⁿ tit chhân-hn̂g, cha-bó͘-kiáⁿ tit kè-chng**
  
-最近hō͘一位親chiâⁿ煩kah giōng boeh bē講話，因為是兄弟姊妹冤家財產ê家庭事，1-ê講一款，chit-ê講mā有理，hit-ê講mā有理，Siau Lah-jih án-ne ìn mā m̄ tio̍h，án-ne講mā得失人，ham-bān講話有khah輸，kui-khì做啞口。
+最近hō͘一位親chiâⁿ煩kah giōng boeh bē講話，因為是兄弟姊妹冤家財產ê家庭事，1 ê講一款，chit-ê講mā有理，hit-ê講mā有理，Siau Lah-jih án-ne ìn mā m̄ tio̍h，án-ne講mā得失人，ham-bān講話有khah輸，kui-khì做啞口。
 
 親chiâⁿ ê序大人頂kó͘月過身，留落遺產boeh辦相續（siong-sio̍k）繼承，tio̍h ài兄弟姊妹ê印á齊全chiah有法度辦理，本chiâⁿ兄弟姊妹ê感情iáu算bē-bái，boeh辦繼承是無siáⁿ問題，只要母舅出面講講--leh，按照古例「cha-po͘-kiáⁿ得田園，cha-bó͘-kiáⁿ得嫁妝。」To̍h ē發落kah好勢好勢，嫁出ê cha-bó͘-kiáⁿ應該bē加講話chiah tio̍h，因為傳統ê觀念，有孝ê序細lóng是án-ne做。
 

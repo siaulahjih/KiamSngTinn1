@@ -18,7 +18,7 @@ toc: true
 七歲、八歲真gâu吵，一日顧伊兩枝腳。
 Che是描寫爸母io gín-á過程經驗ê歌謠，充分表達爸母ê辛苦kah gín-á生長個性變化ê奧妙，ē-tàng hō͘有細漢kiáⁿ ê爸母做參考。
 
-1-ê人ê人格個性，影響siāng大ê時機to̍h是tī gín-á時代，尤其是未入國小讀冊進前，ē用得講滿六歲以前ê教育最重要，m̄是做老師--ê leh推責任，1-ê無好習慣，pháiⁿ教示ê gín-á來到學校，chiah boeh來靠老師ê輔導改變，nā無家長充分合作tàu saⁿ-kāng，是tiāⁿ-tiāⁿ hō͘人失望--ê。
+1 ê人ê人格個性，影響siāng大ê時機to̍h是tī gín-á時代，尤其是未入國小讀冊進前，ē用得講滿六歲以前ê教育最重要，m̄是做老師--ê leh推責任，1 ê無好習慣，pháiⁿ教示ê gín-á來到學校，chiah boeh來靠老師ê輔導改變，nā無家長充分合作tàu saⁿ-kāng，是tiāⁿ-tiāⁿ hō͘人失望--ê。
 
 從事教育幾十冬，時常tn̄g tio̍h頭腦好gâu讀冊ê學生，可惜m̄守規矩，齣頭phēng chē，hō͘人頭殼mo͘h leh se̍h，雖然用心計較boeh ka改正，無伊法，只好怨嘆。追查原因，lóng是爸母siuⁿ sēng，阿公阿媽siuⁿ疼，「二歲乖，四歲gâi，五歲siāng pháiⁿ」，好親像kah in無tī-tāi，kan-nā ē-hiáu boeh ka疼，bē-hiáu boeh ka改，khah-mé mā乖了變gâi，gâi了變pháiⁿ，pháiⁿ慣勢，自然oh得改，實在真害。
 

@@ -23,4 +23,4 @@ Boeh寫台語ē通順koh liú-lia̍h，需要了解台語聲韻ê變化，kap應
 
 台灣俗語that-tó街，比貓á毛koh khah chē，一日一chhiám，寫十冬mā寫bē完，boeh án-chóaⁿ選題材，蕭平治ê辦法是án-ne：格言漢文ê部份，用北京語ē-tàng了解，盡量mài選，其他--ê隨機選擇，看電視看報紙，聽人講話，kap人對談，特別tī庄脚所在，tī市場內，不時都有俗語làu--出來，chit種生活化ê語言，hō͘伊ùi文字上出現，to̍h是siāng好ê題材。有tang-sî-á無靈感，tio̍h-ài péng先覺專家ê著作來編故事、phò-tāu講báng-gah，話來話去mā是boeh ka講kah有一支柄thang好giâ。
 
-1-ê欠腹腸，肚內無文章ê半老老人，用心計較寫出chit款無kāng款ê文章，看無ê人ē笑講寫he. 是siáⁿ-mih文章，文字lām-lām chham-chham，也無『引經據典』，講hit-lō ná親像無讀過冊ê人講ê話，chiah ham-bān也敢提出來展。看有ê人，（台灣話ē-hiáu講，羅馬字ē-hiáu讀）看了後siāng少mā ē肉文笑講，koh親像teh聽人開講話仙kāng款，感覺趣味趣味--koh。請多多kā阮批評指教，感謝！
+1 ê欠腹腸，肚內無文章ê半老老人，用心計較寫出chit款無kāng款ê文章，看無ê人ē笑講寫he. 是siáⁿ-mih文章，文字lām-lām chham-chham，也無『引經據典』，講hit-lō ná親像無讀過冊ê人講ê話，chiah ham-bān也敢提出來展。看有ê人，（台灣話ē-hiáu講，羅馬字ē-hiáu讀）看了後siāng少mā ē肉文笑講，koh親像teh聽人開講話仙kāng款，感覺趣味趣味--koh。請多多kā阮批評指教，感謝！
